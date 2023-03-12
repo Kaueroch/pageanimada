@@ -1,1 +1,1 @@
-# pageanimada
+Olá, pessoal, postando mais uma tela que fiquei fazendo e estilizando! Admito que peguei algumas inspirações da internet. Mas consegui aprender coisas novas e estilos novos. Vivendo e aprendendo! Até a proxima!
